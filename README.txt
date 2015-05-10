@@ -1,0 +1,2 @@
+Started Android is a landing page originally designed to showcase how quickly I (Alex Davis III) can not only pick up new information
+but how quickly I can apply it. Overtime, more things will be added to this file to illustrate more of my talents.
